@@ -1,1 +1,1 @@
-# Telegram bot that shows pictures @hot4sexBot
+# Telegram bot that shows pictures https://t.me/hot4sexBot
